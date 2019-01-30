@@ -1,1 +1,3 @@
 KAMEHAMEHA
+
+I love DBZ
